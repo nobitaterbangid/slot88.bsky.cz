@@ -1,0 +1,1 @@
+# slot88.bsky.cz
